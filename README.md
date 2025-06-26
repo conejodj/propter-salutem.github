@@ -1,0 +1,7 @@
+PROPTER SALUTEM CONSULTORES
+CONSULTORÍA LEGAL POR LA SALUD Y LA DIGNIDAD
+
+¿QUIÉNES SOMOS?
+PROPTER SALUTEM CONSULTORES es una consultoría legal especializada en la defensa de los DERECHOS HUMANOS EN SALUD.
+Creemos que la atención médica debe ser JUSTA, RESPETUOSA Y HUMANA.
+
